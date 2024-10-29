@@ -1,4 +1,4 @@
-# 🚀 Welcome to All-Interview-Material-Compilation organization! 🚀
+# 🚀 Welcome! Glad to see you here 🚀
 
 ## 🌟 About This Organization
 
